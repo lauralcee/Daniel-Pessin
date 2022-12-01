@@ -1,1 +1,2 @@
-# Daniel-Pessin
+# Daniel Pessin
+In today's tough real estate market, the Internet is playing a huge role in the buying and selling of real estate and is an almost limitless source of real estate information. However, it does not replace the experience and knowledge of an experienced real estate professional. This article provides a road map of how most real estate is bought and sold today and outlines smart strategies for buying or selling real estate using both the resources of the Internet and the expertise of a real estate [Daniel Pessin](https://danielpessinrealestate.com). In this tough market you cannot afford to ignore these powerful insights.
